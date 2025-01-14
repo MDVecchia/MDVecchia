@@ -2,7 +2,7 @@
 - 👀 I’m interested in books, Pilates, Yoga, Baking, Drama series
 - 🌱 I’m currently learning to Code and bake sourghdough
 - 💞️ I’m looking to collaborate on my learning to code journey becasue I know nothing to start with
-- 📫 How to reach me find me on LinkedIn
+- 📫 How to reach me? Please, find me on LinkedIn!
 - 😄 Pronouns: her, hers, her
 - ⚡ Fun fact: Born and raised in Brazil
 
